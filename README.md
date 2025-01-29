@@ -1,0 +1,1 @@
+# atakankendikendine1
